@@ -1,4 +1,4 @@
-# ll33sb
+# ooie,prazer! clara
 - estou cursando o ensino médio
 - jogo vôlei 🏐
 - pretendo fazer faculdade de medicina veterinária/biologia marinha 🐾🦭
