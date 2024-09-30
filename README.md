@@ -1,7 +1,7 @@
 # ll33sb
--estou cursando o ensino médio
--jogo vôlei 🏐
--pretendo fazer faculdade de medicina veterinária/biologia marinha 🐾🦭
+- estou cursando o ensino médio
+- jogo vôlei 🏐
+- pretendo fazer faculdade de medicina veterinária/biologia marinha 🐾🦭
 
 ### entre em contato comigo 💨
 @clara.schober.barbosa@escola.pr.gov.br
