@@ -6,6 +6,4 @@
 ### entre em contato comigo 💨
 @clara.schober.barbosa@escola.pr.gov.br
 
-@llarasbr🎀🫧
-
-![](https://tenor.com/pt-BR/view/boiadeira-ana-flavia-castela-ana-castela-ana-gif-18054462508153116437)
+![image](https://github.com/user-attachments/assets/7baf0e05-d4a1-4cc0-80d2-a27d506a6e69)
