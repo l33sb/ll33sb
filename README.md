@@ -6,8 +6,8 @@
 ### entre em contato comigo 💨
 @clara.schober.barbosa@escola.pr.gov.br
 
-![](https://media1.tenor.com/m/lcXa49SpIzsAAAAd/nwmsrocks-norhtwest-motorsport.gif)
 
+![](https://media1.tenor.com/m/NKbU4iemz34AAAAC/ram-ram-trucks.gif)
 
 
 
