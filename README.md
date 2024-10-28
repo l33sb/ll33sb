@@ -6,7 +6,7 @@
 ### entre em contato comigo 💨
 @clara.schober.barbosa@escola.pr.gov.br
 
-![](https://github.com/user-attachments/assets/7baf0e05-d4a1-4cc0-80d2-a27d506a6e69)
+![](https://media1.tenor.com/m/lcXa49SpIzsAAAAd/nwmsrocks-norhtwest-motorsport.gif)
 
 
 
