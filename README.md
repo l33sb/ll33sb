@@ -1,7 +1,7 @@
 # ooie,prazer! clara
 - estou cursando o ensino médio
 - jogo vôlei 🏐
-- pretendo fazer faculdade de medicina veterinária/biologia marinha 🐾🦭
+- pretendo fazer faculdade de medicina veterinária/pecuaria
 
 ### entre em contato comigo 💨
 @clara.schober.barbosa@escola.pr.gov.br
